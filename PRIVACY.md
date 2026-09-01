@@ -96,7 +96,7 @@
 
 ## 문의
 
-psclabor2026@naver.com
+syjang0803@gmail.com
 
 ## 변경
 
